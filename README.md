@@ -1,1 +1,3 @@
-Ini udh jadi ada dua persi ada yang lansung dan rar
+Klo udh di unduh readme nya di hapus dah ya 
+salam 
+#bayu
